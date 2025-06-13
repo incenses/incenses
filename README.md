@@ -1,11 +1,3 @@
 <div align="center">
 
-![](https://komarev.com/ghpvc/?username=incensesep&label=hey!&color=gray&style=flat)
-
-
-
-
-
-
-
-[rentry](https://rentry.co/eyedrop)
+![ezgif-509baf9de6eada](https://github.com/user-attachments/assets/797c73d5-f509-452c-a656-db6f50635cad)

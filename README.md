@@ -1,5 +1,5 @@
 <div align="center">
   
-![GtT03htb0AAiw_5](https://github.com/user-attachments/assets/a3ab91e5-1858-4c40-8eb1-b942df1e8978)
+![blue-lock-itoshi-brothers](https://github.com/user-attachments/assets/74dfaae7-be15-4843-81ff-a4e5b8c6bf4d)
 
 [rentry](https://rentry.co/eyedrop)

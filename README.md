@@ -1,6 +1,6 @@
 <div align="center">
 
-  [rentry](https://rentry.co/linyue)
+![Screenshot 2025-06-24 143815](https://github.com/user-attachments/assets/61935238-096c-45a7-8691-aeb871d9d336)
 
-https://github.com/user-attachments/assets/258884dc-86f8-4a92-83a5-fd52e4221a72
+  [rentry](https://rentry.co/linyue)
 
